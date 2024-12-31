@@ -1,0 +1,2 @@
+# AKU-SUKA
+AYOK SUKA
